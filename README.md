@@ -32,8 +32,8 @@ Here are some of the projects I've worked on:
 
 Outside of technology, I enjoy:
 
-- 🏃 Running and outdoor physical activities  
-- 🌐 Staying informed about new technologies and industry trends  
+- 🏃 Running and outdoor physical activities
+- 🌐 Staying informed about new technologies and industry trends
 - 🎧 Listening to music
 - 🌐 Exploring new cultures and travel
 
